@@ -1,2 +1,7 @@
 # LightBlub
 Ok so i did a thing
+I took some HTML CSS JAVASCREEEPT AND PAITHON! 
+
+THEN I MADE SOME STRUCTURED ENGLISH AND STARTED CODDINGGGGG
+
+AND EYES i coded a lightbulb bub!
